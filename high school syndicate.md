@@ -573,21 +573,25 @@ Darrell got off his bike and slipped into the bushes as Mr. and Ms. Henwinson st
 
 
 
-Funhouse Parties
+## Funhouse Parties
 
-Darrell-41st floor
+### Darrell-41st floor
 The 41st floor was a 15 second ride, room 1028, a 12 second walk, and the front door, an oral and retical scan to which Wilkins let him in. “So,” Darrell asked, “How do we do this?” WIlkins got up. “I’ll call Jasmine, and we’ve got a team down.” He walked over, called briefly for Jasmine and was promptly met by the ecstatic girl. “What’s the plan?” He gestured for them to go down and outside the building.
 Outside, Wilkins explained the plan. He himself noticed a loophole: getting past the border. Darrell pointed it out. “How do we get past the border?” Wilkins remembered. “Don’t worry. I’ve got it covered.”
 
 
 Harold Wu was just enjoying his day with Ms. Khader when the boy ran up to him. Skinny build, cropped brown hair, and an apologetic grin was what he wore when he bumped into his girlfriend, ultimately spilling her groceries.
 “Oh-uh... sorry!” She smiled empathetically and said, “Y’know, that’s not the only time someone has accidentally bumped into me. Just notice where you’re going next time, and be a little careful.” the boy stood up and stumbled, brushing against Mr. Wu’s coat minutely. His face didn’t change. “We know you did that on purpose-” Ms. Khader interrupted him “Well I don’t know! And besides, he’s a kid. and he looks like a kid that’s going to be in my class next year...” Suddenly, Mr. Wu felt a little weight coming off of him. Metaphorically, or literally? he wondered.
+
 There was something strange about the boy. Maybe the fact that he held a flattened up helmet in one hand, or the fact that his clothes looked a tad bit bulkier- he didn’t know. But there was another thing about the boy. His belt. The inert appearance of strength that it portrayed. The fact that it was turned around the wrong way. Mr. Wu could add two and two together as he glimpsed the edge of a rope trailing out of his rusty pickup. He gasped. “You-” He was met by a blurry flash of brown and button-down as he lunged for the boy’s necktie.
+
 Wilkins enjoyed the feeling of outsmarting his cruel 8th grade politics teacher. It was fun. But he smelled trouble in the air.
 Trouble is the spicy scent that your nose is balancing on the edge of as it tries to comprehend it’s existence. It lingers at the very edge of your olfactory sensors like an object might at the edge of your peripheral vision. To Wilkins, it smelled of roasted bacon and Dentyne: Fire gum.
 
 
-with all his strength, he pulled himself up onto the back of the pickup truck, where the trunk lay. Darrell was waiting for him. He laughed. “Dude, I took a picture of Mr. Wu’s face,” Darrell said, holding up a lytro camera so that Wilkins could see, “It was hilarious!” his friend wasn’t settled. There was something strange about the series of events. His hand wiping across his mouth as he yelled “You-”. The tight reach around the long span of his belt as he tried to grab the rope. An imminent tick as he failed to succeed his objective.
+with all his strength, he pulled himself up onto the back of the pickup truck, where the trunk lay. Darrell was waiting for him. He laughed. “Dude, I took a picture of Mr. Wu’s face,” Darrell said, holding up a lytro illum camera so that Wilkins could see.
+
+“It was hilarious!” he yelled. His friend wasn’t settled. There was something strange about the series of events. His hand wiping across his mouth as he yelled “You-”. The tight reach around the long span of his belt as he tried to grab the rope. An imminent tick as he failed to succeed his objective.
 “God's not,” muttered Wilkins.
 
 
@@ -614,12 +618,16 @@ Wilkins scrambled back to the edge of the trunk, closest to Jasmine. He pulled o
 
 With the help of Darrell, Wilkins plunged the spoon into the lever in the back window, as the flames crept slowly towards them, melting away the entire frame of the trunk. He twisted the spoon and-pop!- the window sprung upwards with ease. The two clambered into the back of the truck, huffing and puffing in horror. “Mr. Wu might’ve pulled the pin on Wilkins’ belt!” exclaimed Darrell, hyperventilating. Jasmine tried to ease it. “Look, the border. It’ll be about twenty or thirty seconds away!” Wilkins cut in.
 “In twenty or thirty seconds I’m not even sure you can call this a truck!”
+
 “Just press down on the gas!”
+
 “On first gear!? Not way!” At that moment, A flame erupted from the back of the truck, as the blazing heat made it’s way towards the suspension in the back wheels. The entire front half was blown upwards and in a flip and landed at the foot of a parking lot.
 
 
 Wilkins pulled open the window as the car somersaulted and jumped out. “This way!” They all landed in sequence, hitting the pavement as the car exploded into flames. The three scrambled up and stumbled away into the lot, just as the border patrol guard ran forth to investigate.
+
 They all slipped under a tarp, where a car was hiding under, and Wilkins used the keys he’d jacked from Mr. Wu to open it. They all climbed inside.
+
 The car wasn’t the normal car you’d expect it to be. The seats and other accesories had been replaced by one thin plate of zirconium which would serve as an elevator. Wilkins looked into the cupboard of the car and pulled out a thick bundle of wires and hafnium, then looked around for the plugs. He found all four nestling under a nest of synthetic rubber cords.
 
 
@@ -633,7 +641,9 @@ There was a thick, musty air clinging to the trio as they trudged along a dirt p
 
 
 Another bullet raced out of the darkness and shredded the synthetic bulletproof thread of his button-down. The three raced down a tunnel, ran into a fork, and ducked into a pit as a halo of metal showered over them. Specks of dirt flew everywhere. They all clambered out, mud soaking their faces, bullets following them on their heels. One of the men fired a bullet, and Wilkins jumped as it smashed through the glass of the lantern, barely missing the core. A smoky scent wafted up into their noses. A few more bullets punched into a mine cart ahead of them, and the trio turned away from that path. There was a three way path waiting for them. Wilkins chose the middle one, and Darrell and Jasmine followed. Another fork. The tunnel crept lower and narrower. A spray of bullets lined the walls, and they all shuffled faster through the tunnel and found a grate waiting for them. All of them scrambled through the bars and found themselves in a sewer path. “This way!” an echo bounced along the walls. The footsteps died down. A murmur of voices arose.
+
 “You think...buy it...nearly complete-”
+
 “Speed up...phase three...Project Taurus...”
 
 
@@ -642,13 +652,14 @@ A few minutes later he noticed something. Leaning against the walls, in the shad
 
 
 He suddenly felt himself darting towards the man. He stepped out of the alley, shimmying away as if it were an illusion. Wilkins turned the corner and stopped cold in his tracks. As if magic, there was no man with a cigar there. He glanced left to right, up and down, and ran back into the alley, where Darrell had removed a portion of the brick wall and was climbing into the back of a hunter’s shop.
+
 The back portion of the shop had been owned by Stanley Henwinson, Wilkins’ older brother (and the person Wilkins mentioned during the acceptions.), which was what allowed him to turn a closet pullout into a laboratory.
 
 
 Stanley was waiting for him when he climbed in. “Hey Wilkins,” he greeted his younger brother with a thick englishman’s accent, which he’d picked up from his 7 years at Oxford and Humboldt (he got into Oxford at the age of 10, and Humboldt when he was 13. Wilkins will be there (sort of) next year.), “Whadda ya want?” He stood up from the couch. There was an antiquity in the room, which was so small, Stanley’s 16K TV nearly crossed the length of it. He pulled out the pullout bed from the closet, which had been rendered into a weapon holster, every little trinket bound in egyptian cashmere that had been strung across the bed. Stanley swiped a Hi-Chew off the table and handed it to Wilkins. “Don’t eat it yet,” he chuckled. “This thing significantly overloads your adrenal glands, so you’ll react better and move faster. It lasts for about a minute and a half, or until the flavour runs out, so I designed the wrapper so that it syncronizes with the smartwatch on your wrist. Just tap it to the watch and open stopwatch.” He checked his watch. “Gods,” he exclaimed. “Half a minute until the estimated time of the ‘supposed rapture.’ I’ll meet you there.”
 
 
-The bartender, beer-bellied and hairy, was suprised when a boy walked in, fair brunette with a button-down and khaki pants. He was greeted by another, taller but identical version of him, who sat him down and handed him a whiskey. “Kids ain’t allowed here, boy.” Everybody laughed. The boy didn’t budge. “I didn’t know you thought in terms of height, fat man.” Another beer belly stood up. “You don’t insult the bartender, little baby.” They all spoke with a light norse accent. The boy chuckled. “I don’t want to intterupt your playtime. As long as I’m here, I’m an adult-19 and a half, if you need the bloody age.” A canadien/english accent filled his voice. The bartender rattled the counter with a huge beer bottle and popped off the cap, dumping the entire litre into a lorge glass. “Have a glass. I hope you go drunk.” Another man stood up, his eyes covered by thick eyebrows and his entire body blocky and muscled. He snatched the glass around and returned to his seat,  almost inhaling the alcohol until the glass was empty. He slammed it down. Glass shards flew everywhere. The boy ducked, and muttered an “Eeergh” as a sliver cut his palm. He covered it with his thumb.
+The bartender, beer-bellied and hairy, was suprised when a boy walked in, fair brunette with a button-down and khaki pants. He was greeted by another, taller but identical version of him, who sat him down and handed him a whiskey. “Kids ain’t allowed here, boy.” Everybody laughed. The boy didn’t budge. “I didn’t know you thought in terms of height, fat man.” Another beer belly stood up. “You don’t insult the bartender, little baby.” They all spoke with a light norse accent. The boy chuckled. “I don’t want to interupt your playtime. As long as I’m here, I’m an adult-19 and a half, if you need the bloody age.” A canadian/english accent filled his voice. The bartender rattled the counter with a huge beer bottle and popped off the cap, dumping the entire litre into a huge beer glass. “Have a swig. I hope you go drunk.” Another man stood up, his eyes covered by thick eyebrows and his entire body blocky and muscled. He snatched the glass around and returned to his seat,  almost inhaling the alcohol until the glass was empty. He slammed it down. Glass shards flew everywhere. The boy ducked, and muttered an “Eeergh” as a sliver cut his palm. He covered it with his thumb.
 
 
 Three more men stood up, including the blocky man and the bartender, and reached for their pockets. The boy stood up, and the taller twin also did so, slowly reaching for his back pocket.
@@ -779,7 +790,13 @@ A boy walked up to him. He was tall, and just as tall as the post. His fingers w
 Wilkins was in a barn-like area, full of haystacks and levers and chains. He thought he remembered it. The glass panels on either side of the barn were shattered, and the ones remaining were so covered in grease and grime that they looked close to opaque. Ahead were clutters and heaps of files and guns. So It was America. There was an old and rusted american flag drooping over the girder above him. Another clue. The sun had risen, though it was half buried by the horizon. That was a dead ringer.
 
 
-It was near spring break. Maybe around eight o’clock in the morning, since he’d gotten up at six and would most likely have been out for two hours. The sun would have risen just high enough to leave the horizon, if he was in America. But it hadn’t risen quite enough to do so. So he was in Canada. Wilkins glanced around. There were slacks and chains hidden behind the haystacks. A twisty pipe ran up the side of the wall and snaked up and out of the building. What looked like an out of shape chugger was lurching side to side with every movement that Wilkins made. Lots of things that he could never have considered looking at. But there was a one crucial thing that Wilkins had to find. He glanced around. He could be about half a foot off the ground, chained to the post, which had been plunged into the ground. He shimmyed left and right. His clothes flapped lightly as he did so. The thick chains on his wrists and ankles were a tad bit too big for him. He might be able to slip through them with enough patience. Of course, he was thinking starving himself to get skinnier so he could escape.
+It was near spring break. Maybe around eight o’clock in the morning, since he’d gotten up at six and would most likely have been out for two hours. The sun would have risen just high enough to leave the horizon, if he was in America. But it hadn’t risen quite enough to do so. So he was in Canada. Wilkins glanced around. There were slacks and chains hidden behind the haystacks. A twisty pipe ran up the side of the wall and snaked up and out of the building. What looked like an out of shape chugger was lurching side to side with every movement that Wilkins made. Lots of things that he could never have considered looking at. But there was a one crucial thing that Wilkins had to find. He glanced around. He could be about half a foot off the ground, chained to the post, which had been plunged into the ground. He shimmyed left and right. His clothes flapped lightly as he did so. The thick chains on his wrists and ankles were a tad bit too big for him. He might be able to slip through them with enough patience. Of course, he was thinking about starving himself to get skinnier so he could escape.
 
 
 Wilkins loathed that very thought. So he got to work.
+
+With a bit of force, he flexed his toes and whirled his ankles around until the chains had slipped off his feet. After that, he unbound the rest of his feet from the chains. Lowering himself to the ground, he examined his surroundings again, though he was not trying to prove himself wrong as to wether he was in America or not. Two twigs, both the same height. The dirt below was soft and smooth. Just perfect, he thought.
+
+Tracing a circle in the dirt with his toe, he took one of the twigs lying off to the right of him and plunged it at an angle into the portion of the dirt closest to him. He then grasped the other twig and snapped it in half with his feet, then plunged those two side by side in the portion of the circle furthest from him. Wilkins was making a sun dial.
+
+After a few minutes of molding patches of dirt into a mound for his sun dial, Wilkins looked into the mirror opposite of him.
