@@ -817,8 +817,64 @@ Again, Wilkins was dragged into the barn, back into the post, where they tied th
 
 Hanging from the girder and suspended a meter off the ground, Wilkins was about to give up. He'd tried everything. He'd done the wackiest things you could imagine. But there was one thing he didn't realize: what had the boy said?"'Chew on that,'" he muttered. Wilkins didn't think he would do it.
 
-His hands were bound behind his back, but he did, and would, do one thing. He swung, back and forth, till he had enough momentum. He was now whirling, between each of the two rusted windows that sat below the roof like a metronome. He stopped. The swaying slowed down, and at a point of perfect momentum, he swung his entire body, and only that, so that his hands were gripping The rope his feet were gagged to. Wilkins slowly climbed up the rope and found himself looking at the girder. Now for the grossest of all. He had to use his mouth to unwind the rope, with no regard about his hygeine.
+His hands were bound behind his back, but he did, and would, do one thing. He swung, back and forth, till he had enough momentum. He was now whirling, between each of the two rusted windows that sat below the roof like a metronome. He stopped. The swaying slowed down, and at a point of perfect momentum, he swung his entire body, and only that, so that his hands were gripping The rope his feet were gagged to. Wilkins slowly climbed up the rope and found himself looking at the girder. Now for the grossest of all. He had to use his mouth to unwind the rope, with no regard about his hygiene.
 
 He, carefully trying not to touch his lips to it, bit down on the rope and tugged with all his force. The twine barely moved. He swung, back and forth, and pulled even harder. No luck. He swayed, up onto the ledge of a girder, bit down as hard as he could, and flipped back, tugging the entire rope out.
 
-He swung about in the air, the rope caught onto his neck. He gagged. The twine threw him off balance. He hit the dirt of the barn with a crash. His head was throbbing. Gashes all over his back could be seen. His shirt was hanging on a girder. He staggered up. Amazingly, he hadn't broken anything, but his cuts stung. He shook his hands, and the rope slipped off of them. He shuffled over to the wall, then punched it, and the loose stone slid in. The entire ground gave way. he, left standing on a small platform, thudded down the stairs revealed and glanced four kids, entering the barn and seeing a huge chasm, closing in. Like before, Wilkins hollered out his password and walked through the wreckage that was drawing back like a play curtain. When he walked through, unsurprisingly, twenty kids were 
+He swung about in the air, the rope caught onto his neck. He gagged. The twine threw him off balance. He hit the dirt of the barn with a crash. His head was throbbing. Gashes all over his back could be seen. His shirt was hanging on a girder. He staggered up. Amazingly, he hadn't broken anything, but his cuts stung. He shook his hands, and the rope slipped off of them. He shuffled over to the wall, then punched it, and the loose stone slid in. The entire ground gave way. he, left standing on a small platform, thudded down the stairs revealed and glanced four kids, entering the barn and seeing a huge chasm, closing in. Like before, Wilkins hollered out his password and walked through the wreckage that was drawing back like a play curtain. When he walked through, unsurprisingly, twenty kids were talking their assigned backpacks and walking in the same direction. Though they weren't school backpacks. It was a Sunday. The kids were going to milk the moghyls (pronounced "mo-gy").
+
+The boys, along with Wilkins, who'd gotten a milking backpack himself, went down a dirt path that was off to the left of the showcase room, until they reached a clutter of wires and machines.
+
+"You know the drill," he said, "Steam first, then milk them." One of the boys, Joseph, flipped a switch, and suddenly, there was a whirr, and the light next to the switch glowed green, A sliding glass door was right ahead of them.
+
+They entered a small cave, filled with bats that were yawning as they hung from the roof of their abode. Though you wouldn't call them bats. Because they were moghyls. Bloated, small creatures, they're genetically modified versions of bats, all of which feed young and have kids. But apart from their usual way of feeding their children, moghyls are solely built to produce milk. After you milk them, they grow skinny, and then three days later they're fat again.
+
+The twenty boys, like they'd been taught by Wilkins, took out two little rubber teeth-like molds from their backpacks and inserted them into the two front upper teeth of the moghyls. Each of the molds were attached to tubes that ran down and into the packs. All of the boys detatched a remote from their packs, which were, like the the rubber molds, attached to the their backpacks via a thin nylon cord. Wilkins had installed one big button on the remote, flashing green now, which read: "Milk." Following the procedures they had learned, they all pressed the button, and the tube on the rubber molds suddenly filled with white. If you had been there, you would have seen, through the foggy mist, the moghyls deflating in milk.
+
+Each of the boys went back in and stocked their backpacks into the extractor machines and went down to find a twelve year old waiting for them. He was exactly who Wilkins recognised. Corry Gale, the young author of *Thirteen Ways to Beat a Man with Raw Sphaggetti and MeatBalls (Untested)*, and the four time champion of the Math Olympiad.
+
+"What's the currency system for this project?" He asked out of the blue. It was now referred to as a "Project." Wilkins replied quickly. "25 turks to a flinch, 60 flinches to a wayward, 80 waywards to a hoook, 105 hoooks to a swanky." (pronounced hooooo-ks for obvious reasons) He laughed at the names.
+
+"Who came up with that?"
+
+"Stanley. By the way, how did you get in here with the crazy mob outside?"
+
+## Hide and Seek
+
+### Stanley-His house
+
+It wasn't a surprise that Stanley found an empty bed when he woke up. Two empty ones, to be exact. He started his morning routine. Working as an entreprenuer, he had gotten a big hype with his small container lemonade stand revenue, so he'd decided to take the day off. As the 7th time winner of ScienceCon, he was determined to win again. At least get a very close second. He, after a 15 minute walk, stopped at his office, which was a spacious place at a wealthy architect's house. He had gotten close with him a few years back, after his 4th win at ScienceCon. The man was willing to sponser him, and despite his very money saving decisions, he'd still been sponsered by him.
+
+It was a relatively small, contemporary place that could suit as a druggy's lab. He'd never thought of that one. The place looked five times bigger from the inside, with tinted glass chandeliers and cute tree-like decor spread thoughtfully around the house. There were lots of abstractions on the walls, lined by simple borders and strking colours. He walked down to the basement, where he was greeted by the architect.
+
+"Hey, Uncle Wayne." Wayne Duetzky was his name. But Stanley called him Uncle Wayne, and he was technically now, since he'd adopted Mr. Henwinson's niece, who was sixteen and trying to apply for a job.
+
+"How's it doing?"
+
+"Pretty good."
+
+"Where's Short Stack?" Short Stack. Wilkins. Nothing to say. Stanley had gotten good at doing this.
+
+"Playing a very intense game of hide and seek." Uncle Wayne looked him in the eye. "Really..." Stanley shrugged. "Yeah." He walked over to the end of the basement, where he had sketched out his plans for his ScienceCon invention. "How's the HoverVest?" asked Uncle Wayne. That was the name of the vest. Essentially what it was named.
+
+He sat down, and as Uncle Wayne left for a meeting, he got to work. Beside him was a rough prototype of his invention, wires and metal all bundled in a mess. He got to work.
+
+### Darrell-unknown.
+
+The room was like a stagelit show when he woke up. What had happened? He tried to remember what had happened.
+
+It had started out at 7 o'clock, roughly, when he'd found no Wilkins in bed. He went outside to find him. He looked around and walked across the bridge, grasping the pocketknife in his-well, pocket. There was something he smelt. Burnt chicken and roasted pot. Trouble, he thought, remembering his sterilization.
+
+#### A Year and a Half Ago
+
+Darrell opened his eyes. He was in a cocoon, nude. He saw a dim light shining from a light above him. He didn't move. He felt his heart beat. A wild rattle, more like. He looked around. His skin felt moist. He didn't feel anything. There was a muffled voice, and he shuddered suddenly. He lurched upwards. A bright light seemed into his face, like looking at the sun. He closed his eyes tight. He heard voices as people shuffled to him and started poking at his shoulders. There was a quick second, and the cocoon he was in ripped open.
+
+He woke up hours later. He rubbed his eyes. Wilkins was wating for him.
+
+"That," he said, "Was insane."
+
+There was a sudden, sharp pain in his back. He was in a jungle, maybe not. There were plants all around him, with thorned vines and grasping tentacles. A vine lashed out, wrapped it's thorns around his neck. He gasped. He felt like his body was burning. He dropped to the ground, shaking. A block of wood slammed into him, and he was thrown into a gaping pit of nettles. He didn't know where he was. He staggered up. The world churned. He was thrown off his feet. There was a stabbing pain everywhere. A tentacled plant reached down and gagged him in plant. He felt his bones crack. He was thrown off his feet. A log slammed into his abdomen. Darrell staggered back. He couldn't stand. There was an endless twist and turn in the world. His cuts were on fire. He slipped. A thorned vine reached around his neck and squeezed. He choked. Tried to pry free. He was blacking out, the world closing in from all sides. There was a lump in his throat. He had to gasp for air. Just had to. Even if he met no air. The vine let go, and suddenly a javeling of sort plunged through his stomach. He hit the ground. The world was blurry. He tried to grab for something. The world seemed to swallow him up...
+
+He was back in the present, reliving his final moments in that machine. He felt an ache where his wounds were. If that was a class 3 sterilization, what was a class 10 one in comparison, like Wilkins had been through. No wonder everything he sees is DisneyLand, thought Darrell.
+
+A knife sprouted from his side, and he staggered and nearly fell over the edge of the railings. Lucky for him to have thought of his sterilization, or he would have drowned instead of barely grabbing the bars of his demise. Anothe knife flew towards his hand. he had no choice. He dropped
